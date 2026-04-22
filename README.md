@@ -1,1 +1,0 @@
-# suvarna-durga-seva-samiti
